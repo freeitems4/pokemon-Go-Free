@@ -4,13 +4,13 @@
 
 Pokémon GO is a popular augmented reality (AR) mobile game that has captured the hearts of millions of players worldwide. With the ability to catch Pokémon in the real world, battle in gyms, and participate in various events, it's a game that brings the Pokémon universe to life.
 
-**Get Free Pokemon Go here 👉︎👉︎👉︎ : https://pokemon-go-ffp5.onrender.com**
+**Get Free Pokemon Go here 👉︎👉︎👉︎ : [Free Poke Coins](#https://pokemon-go-ffp5.onrender.com)**
 
 ## Pokémon GO Store
 
 ### Buy Pokémon GO Pokémon
 
-Looking to enhance your Pokémon GO experience? Our [Pokémon GO Shop](#pokemon-go-shop) offers a wide range of items to help you on your journey. From Poké Balls to rare Pokémon, we have everything you need.
+Looking to enhance your Pokémon GO experience? Our [Pokémon GO Shop]([#pokemon-go-shop](https://pokemon-go-ffp5.onrender.com)) offers a wide range of items to help you on your journey. From Poké Balls to rare Pokémon, we have everything you need.
 
 ## Pokémon GO Shop
 
