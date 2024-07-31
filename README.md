@@ -10,7 +10,7 @@ Pokémon GO is a popular augmented reality (AR) mobile game that has captured th
 
 ### Buy Pokémon GO Pokémon
 
-Looking to enhance your Pokémon GO experience? Our [Pokémon GO Shop]([#pokemon-go-shop](https://pokemon-go-ffp5.onrender.com)) offers a wide range of items to help you on your journey. From Poké Balls to rare Pokémon, we have everything you need.
+Looking to enhance your Pokémon GO experience? Our [Pokémon GO Shop](#https://pokemon-go-ffp5.onrender.com) offers a wide range of items to help you on your journey. From Poké Balls to rare Pokémon, we have everything you need.
 
 ## Pokémon GO Shop
 
